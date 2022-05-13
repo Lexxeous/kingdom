@@ -1,0 +1,1 @@
+Gigabyte Z390 Aorus Master Motherboard Software: https://www.gigabyte.com/Motherboard/Z390-AORUS-MASTER-rev-10/support#support-dl-driver
